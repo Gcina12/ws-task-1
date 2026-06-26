@@ -1,3 +1,8 @@
-##This is the first workout
+## First Command
 
-Brian left for driver's license
+This is it
+
+
+## See you NExt Week BRo
+
+HA HA HA HA 
